@@ -1,1 +1,1 @@
-# swissgame
+# swissgamez
